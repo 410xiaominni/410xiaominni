@@ -4,4 +4,4 @@
 
 在个人信息被严重窃取的时代，让我们一起来告别这些烦恼
 
-购买地址 https://www.998ka.cn/links/AD60411F433BCCFA
+购买地址https://www.hao123.com/
